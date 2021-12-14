@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ericaxoparker
-- 👀 I’m interested in NFT ONLYFANS 
+- 👀 I’m interested in NFT ART
 - 🌱 I’m currently learning NFT CRYPTO CURRANCY
 - 💞️ I’m looking to collaborate on MANY PROJECTS AS A GRAPHIC ARTIST, BRAND EMBASS, CREATIVE DIRECTOR 
 - 📫 How to reach me ERICAXOPARKER.NFT OR ERICAXOPARKER@GMAIL.COM
